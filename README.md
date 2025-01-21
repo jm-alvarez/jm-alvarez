@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cars and Programming Related Topic
 - 🌱 I’m currently learning Generative AI and Machine Learning
 - 💞️ I’m looking to collaborate on Web Development Projects
-- 📫 How to reach me, mailt to alvarezjohnmark118@gmail.com
+- 📫 How to reach me, mail to alvarezjohnmark118@gmail.com
 - 😄 Pronouns: He
 - ⚡ Fun fact: My favorite moto is "Never bite the hand of the one that fingers you".
 
